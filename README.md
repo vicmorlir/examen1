@@ -13,3 +13,5 @@
 Y hasta aquí la presentación simple de mi persona.
 
 ![image](https://github.com/vicmorlir/examen1/assets/146205438/5716cd1b-dfc8-4e4c-a3d9-6ec6a66e237a)
+
+![image](https://media.tenor.com/fmdU4SO8R60AAAAM/dancing-chinese.gif)
